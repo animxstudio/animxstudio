@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @animxstudio
+- 👀 I’m interested in create game, play game and 
+- 🌱 I’m currently learning about new thing hehe
+- 💞️ I’m looking to collaborate on anything heh.
+- 📫 How to reach me? ok you can dm me via this email: ennanaen97@gmail.com. You also can dm me in message.
